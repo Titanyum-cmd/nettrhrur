@@ -1,0 +1,2 @@
+# nettrhrur
+VİRÜS!!!!
